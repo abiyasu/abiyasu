@@ -5,4 +5,4 @@
 - 👯 I’m looking to collaborate on web development application or any innovative work
 - 💬 Ask me about music, rock climbing, food, dance, sports, travel
 - 📫 How to reach me: zhangabiyasu@gmail.com
-- ⚡ Fun fact about me: I am always interested in trying and learing something new
+- ⚡ Fun fact about me: I am interested in MBTI 16 personalities a lot
